@@ -1,2 +1,0 @@
-# nextstep
-photography
